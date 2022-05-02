@@ -1,2 +1,1 @@
-My name is Walter.
-I like making people and experiences *feel* gorgeous.
+My name is Walter. Do you feel gorgeous today?
